@@ -1,1 +1,1 @@
-# Royal
+Criteria for choosing a casino are different for everyone, and some people want lots of slots, others focus on bonuses, for some it’s about the number of payment options, etc. For me it’s important that there’s a license and overall the platform is just convenient to use. In my case, I play at [Royal Reels Australia](https://royalreels.casino/) and I think this casino is a good option both for beginners and for people who just want a solid casino without ads, tons of features, and an overloaded site.	
